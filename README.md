@@ -18,7 +18,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> يا ملاكي في عتمة هذا الليل
+> نار الشوق تحرق بلا دليل
+> اقتربي مني ودعينا نذوب
+> في سحر الحب وعشق القلوب
 > ...
 
 📄 **[View Full Lyrics →](./lyrics.txt)**
